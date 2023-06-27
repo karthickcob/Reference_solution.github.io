@@ -1,1 +1,0 @@
-# karthickcob.github.io
